@@ -8,3 +8,5 @@ Parówkę można zrobić z soi. Jak ktoś soi nie zje jest chory psychicznie i p
 Kto jest przeciwny automatyce, ekologii i pracy maszyn na rzecz ludzi a jest za niewolnictwem i manufakturami pracami ręcznymi erom kamienia jest chory na głowę i przeciwny ludziom.
 Jeśli człowiek nie będzie jadł to co piszę będzie upodabniał się do Youtja do morderców.  
 Wasz Jezus i nauczyciel co naucza jak żyć i karze jeść mięso i inne zakazane jedzenie pochodzi od dzikusa. 
+Jak rozpoznać człowieka a łowce?
+Człowiek powie w barze że pije wodę i zamawia wodę czy ludzie nie cierpią i pracują za ludzi roboty czy inne maszyny. Łowca powie specjał specjalny nie do przełknięcia przez człowieka np.: Energetyk, spirytus 98% Hamburger i się zapyta czy to zostało robione ręcznie i się zapyta czy macie wodę ze ścieków ale lekko przefiltrowaną napój bogów. 
