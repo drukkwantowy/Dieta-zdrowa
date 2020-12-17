@@ -7,3 +7,4 @@ A naukowcom czy rasom naukowym nie są potrzebne geny zwierząt.
 Parówkę można zrobić z soi. Jak ktoś soi nie zje jest chory psychicznie i prawdopodobnie będzie miał zamiłowanie do zabijania. 
 Kto jest przeciwny automatyce, ekologii i pracy maszyn na rzecz ludzi a jest za niewolnictwem i manufakturami pracami ręcznymi erom kamienia jest chory na głowę i przeciwny ludziom.
 Jeśli człowiek nie będzie jadł to co piszę będzie upodabniał się do Youtja do morderców.  
+Wasz Jezus i nauczyciel co naucza jak żyć i karze jeść mięso i inne zakazane jedzenie pochodzi od dzikusa. 
